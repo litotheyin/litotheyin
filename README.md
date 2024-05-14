@@ -3,7 +3,7 @@
 - 🖥 I’m currently learning how to code, switching careers from Account Management to Software Engineering.
 - 🧘‍♀️ I love going to yoga, pilates, and playing tennis to keep fit.
 - 🤓 I’m looking to collaborate by learning how to code with others. 
-- 💬 I enjoy sci fi, horror and psychological films, as well as documentaries.
+- 💬 I enjoy sci fi, horror, anime, and psychological films, as well as documentaries.
 - 😄 Pronouns: She/ Her
 - ⚡ Fun fact: I'm currently learning how to write my own vocals and music.
 
